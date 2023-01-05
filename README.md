@@ -1,0 +1,1 @@
+# tumo_labs_2_project_arman_aristakesyan
